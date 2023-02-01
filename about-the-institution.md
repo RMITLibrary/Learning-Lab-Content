@@ -208,3 +208,7 @@ Recognised Prior Learning (also known as Credit) is the recognition of previous 
 This can reduce the number of units (courses) needed to complete your program, which means the length and cost of your studies are reduced and you don’t need to spend time learning things you already know. 
 
 You can use a variety of documentation to apply for RPL such as records of completed training, letter from an employer.
+
+## Research
+
+Research and innovation are a major part of an university culture. This is the place where innovation and discoveries occur in an university. Research conducted at a tertiary education level is primarily focused on solving problems encountered nationally and globally in industry, government and community by applying new knowledge and innovation.  Researchers in a university collaborate with the industry, government, business sector, hospitals, various research and academic institutions nationally and internationally to conduct impactful research.  An university has a staff entirely dedicated to research ((research-focused staff that includes higher degrees by research students, research assistants, postdoctoral researchers, senior research fellows, research team leaders. Most lectures are also conducting research together with their teaching role. Your lecturer might be a researcher as well.
